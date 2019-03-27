@@ -1,2 +1,2 @@
 # Antifa Bot
-## On a quest to fight all the facist in America !
+## On a quest to fight all the fascist in America !
